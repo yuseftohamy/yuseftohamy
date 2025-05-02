@@ -3,7 +3,7 @@
 
 - 🎓 I recently graduated with a **Bachelor of Science in Computer Science** from **Temple University**
 
-- 📫 How to reach me: **yuseftohamyy@gmail.com**
+- 📫 How to reach me: **yusef.tohamy@temple.edu**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
